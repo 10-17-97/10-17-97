@@ -71,3 +71,5 @@
 <p align="center">
 <b><i>Agh, I've had enough!</i></b>
 </p>
+
+![](https://komarev.com/ghpvc/?username=lolicore-enigma&label=HI)
