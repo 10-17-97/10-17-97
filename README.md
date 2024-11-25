@@ -6,7 +6,7 @@
 <h6 align="center">
 <em> ,, i've tried to survive <br>
 will i make it through the night? <br>
-i'll keep fighting until i die <br>
+i'll keep fighting 'til i die <br>
 (until i die) ,, <br>
 
   ㅤ
