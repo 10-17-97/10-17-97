@@ -8,6 +8,9 @@
 will i make it through the night? <br>
 i'll keep fighting until i die <br>
 (until i die) ,, <br>
-ㅤ
+
+  ㅤ
+  ㅤ
+  ㅤ
   
  ![](https://komarev.com/ghpvc/?username=lolicore-enigma&label=HI)
