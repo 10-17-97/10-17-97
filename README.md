@@ -1,13 +1,24 @@
 
 <p align="center">
 <br><br>
-  <img width="300" src="https://i.pinimg.com/originals/7c/d8/ed/7cd8edfeec9f2190353920f9779acf0f.gif">
+  <img width="300" src="https://i.imghippo.com/files/aBTT1246rk.gif">
 </p>
 <h6 align="center">
-<em> ,, i've tried to survive <br>
-will i make it through the night? <br>
-i'll keep fighting 'til i die <br>
-(until i die) ,, <br>
+  
+<em> ,,
+  I'M A MACHINE ON A MISSION
+  
+THIS IS LIGHTSPEED, I HAVE NO IGNITION YET
+
+AN IMAGINARY LIFE WILL TEAR RIGHT THROUGH A HUMAN FLESH
+
+I FEEL MOST REAL WHEN I'M NOT MYSELF
+
+EMANCIPATED, LIBERATED FROM MY HUMAN SHELL
+
+SALVATION IN A DIGITAL HEAVEN
+
+'CAUSE REAL LIFE IS HELL ,, <br>
 
   ㅤ
   ㅤ
