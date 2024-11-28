@@ -5,20 +5,13 @@
 </p>
 <h6 align="center">
   
-<em> ,,
-  I'M A MACHINE ON A MISSION
-  
-THIS IS LIGHTSPEED, I HAVE NO IGNITION YET
-
-AN IMAGINARY LIFE WILL TEAR RIGHT THROUGH A HUMAN FLESH
-
-I FEEL MOST REAL WHEN I'M NOT MYSELF
-
-EMANCIPATED, LIBERATED FROM MY HUMAN SHELL
-
-SALVATION IN A DIGITAL HEAVEN
-
-'CAUSE REAL LIFE IS HELL ,, <br>
+<em> ,, ɪ'ᴍ ᴀ ᴍᴀᴄʜɪɴᴇ ᴏɴ ᴀ ᴍɪssɪᴏɴ </br>
+ᴛʜɪs ɪs ʟɪɢʜᴛsᴘᴇᴇᴅ, ɪ ʜᴀᴠᴇ ɴᴏ ɪɢɴɪᴛɪᴏɴ ʏᴇᴛ</br>
+ᴀɴ ɪᴍᴀɢɪɴᴀʀʏ ʟɪꜰᴇ ᴡɪʟʟ ᴛᴇᴀʀ ʀɪɢʜᴛ ᴛʜʀᴏᴜɢʜ ᴀ ʜᴜᴍᴀɴ ꜰʟᴇsʜ</br>
+ɪ ꜰᴇᴇʟ ᴍᴏsᴛ ʀᴇᴀʟ ᴡʜᴇɴ ɪ'ᴍ ɴᴏᴛ ᴍʏsᴇʟꜰ</br>
+ᴇᴍᴀɴᴄɪᴘᴀᴛᴇᴅ, ʟɪʙᴇʀᴀᴛᴇᴅ ꜰʀᴏᴍ ᴍʏ ʜᴜᴍᴀɴ sʜᴇʟʟ</br>
+sᴀʟᴠᴀᴛɪᴏɴ ɪɴ ᴀ ᴅɪɢɪᴛᴀʟ ʜᴇᴀᴠᴇɴ</br>
+'ᴄᴀᴜsᴇ ʀᴇᴀʟ ʟɪꜰᴇ ɪs ʜᴇʟʟ ,, <br>
 
   ㅤ
   ㅤ
