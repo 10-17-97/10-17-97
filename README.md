@@ -16,14 +16,8 @@ sᴀʟᴠᴀᴛɪᴏɴ ɪɴ ᴀ ᴅɪɢɪᴛᴀʟ ʜᴇᴀᴠᴇɴ</br>
   ㅤ
   ㅤ
   
- ![](https://komarev.com/ghpvc/?username=lolicore-enigma&label=HI)
- <br></br>
-
-<p align="center">
-  
+![](https://komarev.com/ghpvc/?username=lolicore-enigma&color=fd2704&style=flat-square&label=ㅤ) 
+<br>
+<br>
+<br> 
 <video src='https://github.com/user-attachments/assets/0d0ae564-a4e7-43d8-8094-d005aa650bb3'>
-</p>
-
-
-
- 
