@@ -20,4 +20,15 @@ sᴀʟᴠᴀᴛɪᴏɴ ɪɴ ᴀ ᴅɪɢɪᴛᴀʟ ʜᴇᴀᴠᴇɴ</br>
 <br>
 <br>
 <br> 
-<video src='https://github.com/user-attachments/assets/0d0ae564-a4e7-43d8-8094-d005aa650bb3'>
+<p align="center">
+  <em> i have two sides:
+  </em>
+</p>
+
+ㅤ | ㅤ
+:-: | :-:
+<video src='https://github.com/user-attachments/assets/66ae65d5-8d3e-48c7-b005-af6b54b8299a' width=180/> | <video src='https://github.com/user-attachments/assets/96512400-470f-4f2a-a095-fd6ca1d8d2e3' width=190/>
+
+
+
+
