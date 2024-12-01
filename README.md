@@ -27,7 +27,11 @@ sᴀʟᴠᴀᴛɪᴏɴ ɪɴ ᴀ ᴅɪɢɪᴛᴀʟ ʜᴇᴀᴠᴇɴ</br>
 
 ㅤ | ㅤ
 :-: | :-:
-<video src='https://github.com/user-attachments/assets/66ae65d5-8d3e-48c7-b005-af6b54b8299a' width=180/> | <video src='https://github.com/user-attachments/assets/2abb73f3-1e8b-4e68-996e-8847baa89993' width=190/>
+<video src='https://github.com/user-attachments/assets/66ae65d5-8d3e-48c7-b005-af6b54b8299a' width=180/> | <video src='https://github.com/user-attachments/assets/3955058e-e133-49fd-b2fd-0262ea34e939' width=190/>
+
+
+
+
 
 
 
