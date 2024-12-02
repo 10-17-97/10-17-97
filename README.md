@@ -1,17 +1,18 @@
-
+<h6 align="center">
+<em> ...ᴀʟʟ ᴀᴍᴇʀɪᴄᴀɴ ᴀssᴡɪᴘᴇ... </br>
 <p align="center">
 <br><br>
-  <img width="300" src="https://i.imghippo.com/files/aBTT1246rk.gif">
+  <img width="300" src="https://media1.tenor.com/m/6WzBuuYVHvIAAAAd/postal1-loading-screen.gif">
 </p>
 <h6 align="center">
   
-<em> ,, ɪ'ᴍ ᴀ ᴍᴀᴄʜɪɴᴇ ᴏɴ ᴀ ᴍɪssɪᴏɴ </br>
+<em> ɪ'ᴍ ᴀ ᴍᴀᴄʜɪɴᴇ ᴏɴ ᴀ ᴍɪssɪᴏɴ </br>
 ᴛʜɪs ɪs ʟɪɢʜᴛsᴘᴇᴇᴅ, ɪ ʜᴀᴠᴇ ɴᴏ ɪɢɴɪᴛɪᴏɴ ʏᴇᴛ</br>
 ᴀɴ ɪᴍᴀɢɪɴᴀʀʏ ʟɪꜰᴇ ᴡɪʟʟ ᴛᴇᴀʀ ʀɪɢʜᴛ ᴛʜʀᴏᴜɢʜ ᴀ ʜᴜᴍᴀɴ ꜰʟᴇsʜ</br>
 ɪ ꜰᴇᴇʟ ᴍᴏsᴛ ʀᴇᴀʟ ᴡʜᴇɴ ɪ'ᴍ ɴᴏᴛ ᴍʏsᴇʟꜰ</br>
 ᴇᴍᴀɴᴄɪᴘᴀᴛᴇᴅ, ʟɪʙᴇʀᴀᴛᴇᴅ ꜰʀᴏᴍ ᴍʏ ʜᴜᴍᴀɴ sʜᴇʟʟ</br>
 sᴀʟᴠᴀᴛɪᴏɴ ɪɴ ᴀ ᴅɪɢɪᴛᴀʟ ʜᴇᴀᴠᴇɴ</br>
-'ᴄᴀᴜsᴇ ʀᴇᴀʟ ʟɪꜰᴇ ɪs ʜᴇʟʟ ,, <br>
+'ᴄᴀᴜsᴇ ʀᴇᴀʟ ʟɪꜰᴇ ɪs ʜᴇʟʟ <br>
 
   ㅤ
   ㅤ
