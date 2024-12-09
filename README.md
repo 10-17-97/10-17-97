@@ -29,14 +29,13 @@ sᴀʟᴠᴀᴛɪᴏɴ ɪɴ ᴀ ᴅɪɢɪᴛᴀʟ ʜᴇᴀᴠᴇɴ</br>
 ㅤ | ㅤ
 :-: | :-:
 <video src='https://github.com/user-attachments/assets/66ae65d5-8d3e-48c7-b005-af6b54b8299a' width=180/> | <video src='https://github.com/user-attachments/assets/3955058e-e133-49fd-b2fd-0262ea34e939' width=190/>
+
 </p>
 ㅤ
 ㅤ
+ㅤ
 
-
-
-
-
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
