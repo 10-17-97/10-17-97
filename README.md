@@ -35,7 +35,7 @@ sᴀʟᴠᴀᴛɪᴏɴ ɪɴ ᴀ ᴅɪɢɪᴛᴀʟ ʜᴇᴀᴠᴇɴ</br>
 ㅤ
 ㅤ
 
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&bar_color_cover=true&bar_color=800000)](https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&redirect=true)
 
 
 
