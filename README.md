@@ -1,9 +1,10 @@
 ㅤ
 </a>
-<h6 align="center">
+<h6 align="center"> 
   <img width="300" src="https://github.com/user-attachments/assets/8d26bd32-f83f-440f-a147-958c35c887c1">
 </p>
-<h6 align="center">
+  
+
   
 <em> диᴋиᴇ ᴧюди нᴇ ᴨуᴦᴀюᴛ ʍᴇня<br>
 ᴄоциуʍ нᴇ ʙ ʍодᴇ, ʙ ʍодᴇ ᴨуᴄᴛоᴛᴀ<br>
