@@ -1,7 +1,7 @@
 ㅤ
 </a>
 <h6 align="center"> 
-  <img width="300" src="https://github.com/user-attachments/assets/8d26bd32-f83f-440f-a147-958c35c887c1">
+  <img width="300" src="https://github.com/user-attachments/assets/a087870c-cdcb-471d-873b-e7a0a471f07d">
 </p>
   
 
@@ -22,6 +22,7 @@
   
 ![](https://komarev.com/ghpvc/?username=lolicore-enigma&color=fd2704&style=flat-square&label=ㅤ) 
 <br>
+
 <br>
 <br> 
 
