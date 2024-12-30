@@ -2,7 +2,12 @@
 
 <h6 align="center"> 
   <img width="400" src="https://github.com/user-attachments/assets/e0cf0915-4531-4a48-81ba-f3919f43fc91"> <--- would
-</p>
+</br>
+</br>
+</br>
+    
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=a30000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+ </p>
  
   #
 
@@ -26,6 +31,8 @@
 
 ; ; in the eyes of some people I may be a red flag but if it bothers you so much then just hide me. thanks :* 
 
+</br>
+
 *🙏 BLESS 🙏*
 
 ## 
@@ -34,5 +41,4 @@
 <img width="400" src="https://github.com/user-attachments/assets/f399c1d6-653e-4d7b-a28a-a0c58a7c6d65">
  </br>
  </br>
-  
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=a30000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
