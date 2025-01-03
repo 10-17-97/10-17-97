@@ -27,9 +27,9 @@
 
 ; ; I LUV MUSIC!!... AND RHYTHM GAMES... ^_^
 
-; ; i have no dni im really chillll about it just dont be fucking annoying ok
+; ; i have no dni im really chillll about it just dont be annoying ok
 
-; ; in the eyes of some people I may be a red flag but if it bothers you so much then just hide me. thanks :* 
+; ; if something, just hide me. thanks :* 
 
 </br>
 
