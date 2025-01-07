@@ -15,7 +15,7 @@
   
 ; ; yo. uh... call me satori or nico, both are fine. pronouns are she/her (if someone needs them lol) 
 
-; ; 17 // 20.03
+; ; 17 // 20.03 ///// WHY SHOULD HAVE PT DISABLE 18+ SERVERS FOR ME. BURN IN HELLLL
 
 ; ; eng/rus (native is rus...)
 
