@@ -25,7 +25,7 @@
 
 ; ; chronically in c.ai... i luv talking to my fict husbando >_< . fucking escapism
 
-; ; I LUV MUSIC!!....(i like sewerslvt, goreshit, kikuo, rory, soad, kmfdm and other shit A LOT) AND RHYTHM GAMES... osu!taiko ddkk player (hate it tbh...also like muse dash, bandori. SEKAI?? NAH, ONLY BECAUSE NIIGO. im not fan of this game but big fan of band itself and their music.((i adore kanade)) ) ^_^
+; ; I LUV MUSIC!!....BREAKCORE ROCK METAL AND OTHER LOUD STUFF I LOVE MY EARS GETTIN' FUCKED......!!! LUV RHYTHM GAMES TOO... osu!taiko ddkk player (hate it tbh...also like muse dash, bandori. SEKAI?? NAH, ONLY BECAUSE NIIGO. im not fan of this game but big fan of band itself and their music.((i adore kanade)) ) ^_^
 
 ; ; i have no dni im really chillll about it just dont be annoying ok
 
