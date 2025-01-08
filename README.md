@@ -15,7 +15,7 @@
   
 ; ; yo. uh... call me satori or nico, both are fine. pronouns are she/her (if someone needs them lol) 
 
-; ; 17 // 20.03 ///// WHY DID PT BLOCKED 18+ SERVERS FOR ME?! MY ACCOUNT IS OVER 18 Y.O CMON. if someone reported me i hope u will burn in hell /gen
+; ; 17 // 20.03 ///// WHY DID PT BLOCKED 18+ SERVERS FOR ME?! MY ACCOUNT IS OVER 18 Y.O CMON. if someone reported me i hope u will burn in hell /srs
 
 ; ; eng/rus (native is rus...)
 
