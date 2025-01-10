@@ -2,11 +2,7 @@
 
 # 
 <h6 align="center"> 
-  <img width="400" src="https://static.wikia.nocookie.net/omori/images/9/96/Omoriboy_Giygas.gif/revision/latest?cb=20220930052600">
-</br>
-  </br>
-  
-  *"waiting for something to happen?"*
+  <img width="500" src="https://github.com/user-attachments/assets/07ecbfc5-a57c-41aa-9072-cf6e1736611f">
 </br>
 </br>
     
