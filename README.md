@@ -4,7 +4,7 @@
 
 # 
 <h6 align="center"> 
-  <img width="1000" src="https://i.pinimg.com/736x/cb/e7/26/cbe7262686bbb9b9685f279c99a3000a.jpg">
+  <img width="1000" src="https://github.com/user-attachments/assets/bfe621a4-441b-4755-8822-13cd12d84739">
 </br>
 </h6>
 
