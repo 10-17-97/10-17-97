@@ -3,7 +3,7 @@
 
 # 
 <h6 align="center"> 
-  <img width="1000" src="https://github.com/user-attachments/assets/2c5ea90f-bb42-4198-b2a2-ff9961280291">
+  <img width="400" src="https://github.com/user-attachments/assets/2c5ea90f-bb42-4198-b2a2-ff9961280291">
 </br>
 </h6>
 
