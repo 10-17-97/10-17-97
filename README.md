@@ -4,7 +4,7 @@
 
 # 
 <h6 align="center"> 
-  <img width="400" src="https://github.com/user-attachments/assets/1eead969-7212-4f33-a320-e4c5bd6df622">
+  <img width="1000" src="https://media1.tenor.com/m/1vh6L_QgmJwAAAAd/corpse-dance-shikabane-no-odori.gif">
 </br>
 </h6>
 
