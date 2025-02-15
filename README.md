@@ -12,7 +12,7 @@
 <h6 align="center"> 
 </br>
 </br>
-  
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=a30000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
- 
- 
+
+<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=u0u4aguznmg71vt7b17xnp0vc">
+  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=u0u4aguznmg71vt7b17xnp0vc" alt="Data Card for Spotify">
+</a>
