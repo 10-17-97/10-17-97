@@ -7,7 +7,7 @@
   
  ~~~~~~~~~~~~~~~~~
 No matter what, I can't erase it.
-I'm sorry for the lonely echo from my heart.[2]
+I'm sorry for the lonely echo from my heart.
 So if that's the case and it won't disappear,
 I had an idea that it would be good to draw over it.
 
