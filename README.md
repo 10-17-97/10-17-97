@@ -6,22 +6,33 @@
   <img width="500" src="https://github.com/user-attachments/assets/9f9d3109-8fa3-4eff-9183-b12a67b24869">
   
  ~~~~~~~~~~~~~~~~~
-F.U.C.K.Y.O.U
+No matter what, I can't erase it.
+I'm sorry for the lonely echo from my heart.[2]
+So if that's the case and it won't disappear,
+I had an idea that it would be good to draw over it.
 
-Bitter Chocolate Decoration
-Yearning for the ideals that everybody wants
-Bitter Chocolate Decoration
-I burned my individuality and feelings to the ground
-Bitter Chocolate Decoration
-And now, having put my greed and ego six feet under
-Bitter Chocolate Decoration
-I've finally grown up, Mommy
+So that the black, black crack would disappear,
+So that they wouldn't be visible, I quickly moved my pen and the tears running down my face.
+I wanted to hide it, no, I thought I could hide it.
 
-Tomorrow and certainly from this point forward
-This hell will continue to the bitter end
-Alas, so please, just for now
-Let’s go along with these feelings ripped right out of
-Our childhood, stark-naked
+I should have done that.
+I should have forgotten it.
+It looks so easy to open up like that.
+Why?
+Why?
+Why?
+Why?
+Despite me asking, the answer never arrives.
+
+A new game where I'll remain even more weak.
+Surely this game of punishment will continue.
+From now on, what should I do, I wonder?
+Since then, have I changed even a little?
+
+We mixed the light when our mood was down.
+Why? Why? Even though we're still weak.
+In order to definitely meet, so that we won't be apart.
+It shines, it shines. Sleepless 25:00.
 ~~~~~~~~~~~~~~~~~~
 
 </h6>
