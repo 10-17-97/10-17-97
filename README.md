@@ -6,7 +6,6 @@
   <img width="500" src="https://github.com/user-attachments/assets/9f9d3109-8fa3-4eff-9183-b12a67b24869">
   
  ~~~~~~~~~~~~~~~~~
---------------------
 Break my back
 You won't break me
 All is black
@@ -28,7 +27,6 @@ Not superiority
 I killed the king of deceit
 Now I sleep in anarchy
 Anarchy...
---------------------
 ~~~~~~~~~~~~~~~~~~
 
 </h6>
