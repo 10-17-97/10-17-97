@@ -41,4 +41,4 @@ Anarchy...
 </a>
 
 <h6 align="right"> 
-(ima dead waltz #1 fan lol)
+(ima dead waltz #1 enjoyer lol)
